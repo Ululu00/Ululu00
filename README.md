@@ -1,4 +1,4 @@
-## Hi there 👋  I'm Seong HO Myung
+## Hi there 👋  I'm Seong Ho Myung
 
 ---
 
